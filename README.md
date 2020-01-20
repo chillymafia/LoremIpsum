@@ -1,6 +1,12 @@
 # LoremIpsum
 Jan 20th Demo of Merge Conflict
 
+Let's just have a good time. If you over-mix it, you just get one dead color. We use no patterns, and no tracings. Practice visualizing things in your mind.
+
+That gives us a general idea of how that mountain was made. Just go around and try them all. It's a lot of fun. Don't over do it -- be careful. Be careful.
+
+That little painter man is so cute! Now, very gently, we'll hypnotize it. We have to have some fun. You decide -- you have to make these big decisions.
+
 Spicy jalapeno bacon ipsum dolor amet laboris cupidatat andouille, pariatur eiusmod veniam beef. Consequat bacon cupidatat, strip steak tail cupim andouille lorem short loin sirloin proident excepteur. Swine exercitation biltong, tail velit pig drumstick rump turducken leberkas t-bone. Jerky sint shoulder short ribs laboris. Rump excepteur meatloaf duis doner, minim laboris landjaeger chicken ground round irure pork belly tenderloin t-bone.
 
 Ea mollit ipsum, magna cow tempor pork belly bacon excepteur deserunt duis lorem capicola. Aliquip ullamco chislic sunt t-bone mollit pancetta fatback cillum laboris incididunt commodo excepteur pastrami et. Beef ribs swine adipisicing kevin, biltong ex ut dolor cow. Ut bacon quis veniam sint landjaeger andouille qui nisi buffalo. Shankle sirloin tenderloin boudin, ground round dolore est ut sunt nostrud bresaola laboris.
